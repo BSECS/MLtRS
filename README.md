@@ -45,6 +45,6 @@ Video demonstration:
 
 https://www.youtube.com/watch?v=ffQQINaBjYY&t=4s
 
-Feel free to write to me @ kamakshaiah.m@gmail.com or call me +919177573730 for training and consultancy. 
+Feel free to write to contact@bse-cs.com or call me +919177573730 for training and consultancy. 
 
 
